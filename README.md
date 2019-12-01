@@ -1,0 +1,2 @@
+# adwokatwodzislaw
+Lokalizacja Kancelarii Adwokata: - ul. Zamkowa 7, 44-300 Wodzisław Śląski; - ul. Podhalańska 31, 44-335 Jastrzębie-Zdrój; - ul. Energetyków 83, 44-200 Rybnik; - ul. Mariacka 4, 40-013 Katowice.  Adwokat Patryk Riedel Specjalizuje się w:  - Sprawach o rozwód i separacje; - Prawie Rodzinnym; - Prawie Karnym; - Sprawach z ZUS; - Szkodach Górniczych.  Adwokat Wodzisław Śląski, Jastrzębie-Zdrój, Rybnik, Katowice    Telefon: 500045724; adwokat.riedel@gmail.com;
